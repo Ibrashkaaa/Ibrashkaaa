@@ -1,0 +1,5 @@
+- 👋 Ibrashkaaa
+- 👀 interested in Web designing
+- 🌱 learning python
+- 💞️ python,html,css
+- 📫 iibraashkaa@gmail.com 
